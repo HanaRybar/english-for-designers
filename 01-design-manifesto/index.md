@@ -21,9 +21,6 @@ All you have is now.
 
 Creating space for ideas requires slowing down and allowing your mind to **_wander._**  
 
-Feel the sun on your skin, the wind in your hair,  and the textures beneath your fingertips.   
-Notice the colors, and listen to the sounds that fill the air.
-
 ---
 
 ### Let It Scare You a Little, and Excite You a Lot  🎢

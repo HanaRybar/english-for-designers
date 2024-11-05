@@ -1,46 +1,82 @@
-In a world filled with relentless noise — where voices compete for attention and the clamor of consumption drowns out our inner selves — we often find ourselves at a crossroads.
+# Design Manifesto
 
-It's this moment we must decide whether to succumb to the pressure or to stay true to ourselves.
+In a world filled with relentless noise—where voices compete for attention and the clamor of consumption drowns out our inner selves  
+—we often find ourselves at crossroads.
 
-**Do what you love.**  
-**Do what you believe in.**  
-**Do the work you hope may be of some use.**
+It’s the moment we must decide whether to succumb to the pressure or to stay true to ourselves.
+<br><br>
 
-Because our ideas and actions shape the world around us.
+**Do what you _LOVE._**  
+**Do what you _BELIEVE IN._**  
+<br><br>
+_Because our ideas and actions shape the world around us._
 
----
-
-**Slow down.**
-
-People are concerned with how you make it work — not why you make it work.  
-People will copy how with no understanding of the why.
-
-*...quality over quantity*
 
 ---
 
-**Don't be bound by the labels, become a paradox.**
+### Slow Down🍃
+
+Remember to live.  
+All you have is now.
+
+Creating space for ideas requires slowing down and allowing your mind to **_wander._**  
+
+Feel the sun on your skin, the wind in your hair,  and the textures beneath your fingertips.   
+Notice the colors, and listen to the sounds that fill the air.
+
+---
+
+### Let It Scare You a Little, and Excite You a Lot  🎢
+
+Don't do things **_just_** because you think you will get something for it.  
+Do what's interesting to you.  
+
+We can't predict the outcome.   
+
+> In the realm of creativity, the outcome can be quite unpredictable.   
+> The formula that worked yesterday might fail today.  
+
+<br><br>
+To be creative, you have to be in a **_state of play._**   
+You can't play if you're being too careful or trying not to make mistakes.  
+
+Be **_curious_** - break the rules, question own beliefs, experiment.   
+Do what you can't.
+
+---
+
+### Don’t be bound by labels; become a PARADOX ✨  
 
 Be a writer who builds companies.  
-Be an entrepreneur who paints.
+Be an entreprenour who paints. 
+<br><br>
 
-Be undefinable.  
-Because like in Tetris, if you fit in too well, you disappear.
+**_Be undefinable.  
+Because like in tetris, if  you fit in too well, you disappear._**
 
 ---
 
-**Let it scare you a little and excite you a lot.**
+### Understanding Your Why 💖
+**_Why → How → What_**  
 
-If you feel safe in the area that you're working in, you're not working in the right area.  
-Always go a little further into the water than you feel you are capable of being in.
+People are concerned with how you make it work - not why you make it work.   
+People will copy **_how_** with no understanding of the **_why._**
 
-Go a little bit out of your depth. And when you don't feel that your feet are quite touching the bottom, you're just in the right place to do something exciting.
+---
 
-— David Bowie
+### Empty the cup 🍵
 
-*...strive for self-overcoming*  
-*...transcending current limitations to reach higher forms of existence and creativity.*
+In order for something new to come, something old must go and that old can sometimes mean   
+—let go of what you know until know.  
 
-Evolve into something greater.  
-**Be proactive.**
+Empty the cup and start from the beginning.
 
+It's not easy to do, but at the moment it's the only way how something that is **_blocked_** can be brought back to **_movement._** 
+
+---
+
+### No Risk, No Story⚡
+
+Be the one who goes **_first._**  
+
+Because life rewards those who **_initiate,_** not those who **_wait_** for others to do so. 

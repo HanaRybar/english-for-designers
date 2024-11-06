@@ -14,7 +14,7 @@ _Because our ideas and actions shape the world around us._
 
 ---
 
-### Slow Down🍃
+### Slow Down 🍃
 
 Remember to live.  
 All you have is now.

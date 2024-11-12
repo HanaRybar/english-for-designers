@@ -1,12 +1,11 @@
 # First Impressions
 <br><br>
-Each bio captures the essence of its creator´s personality.   
-It captures their siprit, their passions and values.  
-It´s authentic. 
-  
-It makes them  _**Stand Out**_  and  _**Memorable.**_ 
+Each bio captures _the essence_ of its creator—reflecting their _spirit, passions, and values._   
+<br><br>
+It’s authentic, helping them _**Stand Out**_ and _**Be Memorable.**_
 
 ---
+
 <br><br>
 #### Chelsea Kauai 🌺
 >I'm Chelsea Kauai,

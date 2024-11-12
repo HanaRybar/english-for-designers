@@ -1,8 +1,9 @@
 # First Impressions
 <br><br>
 Each bio captures _the essence_ of its creator—reflecting their _personality, passions, and values._   
+It is _**Authentic.**_  
 <br><br>
-It’s authentic, helping them _**Stand Out**_ and _**Be Memorable.**_
+This is what makes them _**Stand Out**_ and _**Memorable.**_
 
 ---
 

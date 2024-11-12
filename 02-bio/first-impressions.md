@@ -3,7 +3,7 @@
 Each bio captures _the essence_ of its creator—reflecting their _personality, passions, and values._   
 It is _**Authentic.**_  
 <br><br>
-This is what makes them _**Stand Out**_ and _**Memorable.**_
+This is what makes them _**STAND OUT**_ and _**MEMORABLE.**_
 
 ---
 

@@ -9,7 +9,8 @@ It’s the moment we must decide whether to succumb to the pressure or to stay t
 **Do what you _LOVE._**  
 **Do what you _BELIEVE IN._**  
 <br><br>
-_Because our ideas and actions shape the world around us._
+_Because our ideas and actions shape the world around us._  
+_Be the change, you want to see in the world._
 
 
 ---

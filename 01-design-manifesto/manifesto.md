@@ -30,7 +30,7 @@ Don't do things **_just_** because you think you will get something for it.
 Do what's interesting to you.  
 
 We can't predict the outcome.  
-
+<br><br>
 > In the realm of creativity, the outcome can be quite unpredictable.  
 > The formula that worked yesterday might fail today.  
 

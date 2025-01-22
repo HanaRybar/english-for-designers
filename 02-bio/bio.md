@@ -24,9 +24,10 @@ _But we all see it everyday - just take a look around._
 <br><br>
 <br><br>
 Clearly I´m not the only one who feels this way.  
-_**Burnout is on a RISE.**_
+_**Crisis is on a RISE.**_
 <br><br>
 
 --- 
 <br><br>
-## The Burnout Society 
+## The Burnout Society   
+

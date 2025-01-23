@@ -54,4 +54,48 @@ _The shared beliefs that make us believe we’re all part of the same group,
 even when we don’t know each other._
 <br><br>
 <br><br>
-**Nations, religions, money**—_they’re all fictions._
+_**Nations, religions, money**—they’re all fictions._
+<br><br>
+
+---
+<br><br>
+_We used our unique minds,   
+learned how to tame the wild._   
+<br><br>
+Our population **BOOMED** as did our _**demands**_.
+
+<br><br>
+--- 
+<br><br>
+### The Lie We Live
+<br><br>
+We see everything as something to be owned,   
+as an object to be sold. 
+<br><br>
+<br><br>
+_We work and work, left with **no time** we work for._ 
+<br><br>
+<br><br>
+Constantly striving to do **MORE**.   
+<br><br>
+
+---
+<br><br>
+Yesterday´s luxuries become today´s necessities.
+<br><br>
+<br><br>
+_Chasing shiny things—**possesions, status, validation**_.  
+_This is what it means to be free?_
+<br><br>
+<br><br>
+Smart enough to do our job, but not to question **WHY** we do it.
+<br><br>
+
+---
+<br><br>
+They gave us _**money**_, and in return we gave them _**the world**_.
+
+<br><br>
+--- 
+<br><br>
+### The Burnout Society

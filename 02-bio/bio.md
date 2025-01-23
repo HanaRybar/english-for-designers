@@ -29,5 +29,29 @@ _**Crisis is on a RISE.**_
 
 --- 
 <br><br>
-## The Burnout Society   
+## A Modern Odyssey   
+### The Tree of Knowledge Mutation
+<br><br>
+_What makes us so different from every other species on this planet?_  
+_What allowed us to rise above the rest?_
+<br><br>
+<br><br>
+Around 70,000 years ago, something _extraordinary_ happened.  
+  
+— _**Cognitive Revolution**_
+<br><br>
+<br><br>
+Our ancestors leapt ahead, not because they were the strongest or the fastest,  
+but because of their unique ability to create _**fictions**_.
+<br><br>  
 
+---
+<br><br>  
+It's the belief in the same fictions that allow us to work together in **HUGE** numbers.
+<br><br> 
+<br><br> 
+_The shared beliefs that make us believe we’re all part of the same group,  
+even when we don’t know each other._
+<br><br>
+<br><br>
+**Nations, religions, money**—_they’re all fictions._

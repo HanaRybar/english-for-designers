@@ -85,7 +85,7 @@ Yesterday´s luxuries become today´s necessities.
 <br><br>
 <br><br>
 _Chasing shiny things—**possesions, status, validation**_.  
-_This is what it means to be free?_
+_This is what it means to be free?_  
 <br><br>
 <br><br>
 Smart enough to do our job, but not to question **WHY** we do it.
@@ -99,3 +99,42 @@ They gave us _**money**_, and in return we gave them _**the world**_.
 --- 
 <br><br>
 ### The Burnout Society
+<br><br>
+For the _**first time**_ in history, more people die  from _**eating too much**_ than from _**eating too little**_.
+
+More people die from _**old age**_ than from _**infectious diseases**_.      
+
+More people _**commit suicide**_ than are _**killed**_ by soldiers, terrorists and criminals combined.
+<br><br>
+<br><br>
+<br><br>
+In just a few decades, the world has _shifted_ beneath our feet.  
+  
+What once took centuries now happens in the _**blink of an eye**_.
+<br><br>
+<br><br>
+Everyone keeps talking about progress. 
+<br><br>
+<br><br>
+_**So why do things not feel okay?**_
+<br><br>
+
+---
+<br><br>
+Technology has rewired everything—_the way we think, the way we connect, the way we exist_.
+<br><br>
+
+---
+<br><br>
+Once, information was a scarce.   
+Now, we’re _**drowning in it**_.
+<br><br>
+<br><br>
+_Every scroll, every click—  
+How much of it is truly nourishing?  
+How much is engineered to addict, to divide, to manipulate?_  
+<br><br>
+
+
+
+

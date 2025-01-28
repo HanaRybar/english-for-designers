@@ -122,8 +122,9 @@ _**So why do things not feel okay?**_
 ---
 <br><br>
 Technology has rewired everything—_the way we think, the way we connect, the way we exist_.
+  
 <br><br>
-
+  
 ---
 <br><br>
 Once, information was a scarce.   
@@ -134,7 +135,59 @@ _Every scroll, every click—
 How much of it is truly nourishing?  
 How much is engineered to addict, to divide, to manipulate?_  
 <br><br>
+<br><br>
+We´re becoming so disconnected  
+—so distrustful.
+<br><br>
 
+---
+<br><br>
+If you give good people **bad information**, 
+they make **bad decisions**.
+  
+<br><br>  
+---
+<br><br>
+### The Great Storytellers
+<br><br>
+_What if the most dangerous tool humanity ever created wasn´t a **weapon**,  
+but a **story**?_
+<br><br>
+<br><br>
+_The ones who **craft the stories** hold the power to influence those,  
+who merely know the **facts**._
 
+<br><br>
 
+---
+<br><br>
+We accept the reality of the world with which we´re presented.
 
+<br><br>
+
+---
+<br><br>
+_We are **NOT** just a designers._  
+<br><br>
+Every **choice** we make—every ad, every product, every interface—
+ripples far beyond the brief.
+<br><br>
+<br><br>
+_We influence what people desire,  
+what they think they need,  
+and what they strive for_.  
+<br><br>
+<br><br>
+It’s never just _**aesthetics**_.    
+It’s a _**tool**_ to shape _behaviors, beliefs, and systems_.
+<br><br>
+
+---
+<br><br>
+_We are **NOT** just designers._  
+_We are **Architects of Culture**._
+
+<br><br>
+---
+<br><br>
+### The Bridge of Death

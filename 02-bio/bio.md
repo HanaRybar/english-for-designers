@@ -127,7 +127,7 @@ Technology has rewired everything—_the way we think, the way we connect, the w
   
 ---
 <br><br>
-Once, information was a scarce.   
+Once, information was scarce.   
 Now, we’re _**drowning in it**_.
 <br><br>
 <br><br>
@@ -190,4 +190,25 @@ _We are **Architects of Culture**._
 <br><br>
 ---
 <br><br>
-### The Bridge of Death
+Crisis is time of decisions - _**important decisions**_.
+<br><br>
+<br><br>
+Decisions we don’t always realize we’re making.  
+The danger sneaks in _quietly_.
+<br><br>
+<br><br>
+
+---
+<br><br>
+_Don’t be a **stylist** of someone’s story._
+<br><br>
+<br><br>
+_Don´t get trapped in **slavery**   
+with **distraction** and  
+some **comfort**._
+
+<br><br>
+---
+<br><br>
+## Unlabeled
+

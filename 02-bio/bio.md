@@ -203,6 +203,15 @@ The danger sneaks in _quietly_.
 _Don’t be a **stylist** of someone’s story._
 <br><br>
 <br><br>
+And at the end of the day, we want to get _**sedated**_.  
+<br><br>
+Because it´s painful not to pretend.  
+—_we are **cowards**_
+<br><br>
+<br><br>
+
+---
+<br><br>
 _Don´t get trapped in **slavery**   
 with **distraction** and  
 some **comfort**._
@@ -211,4 +220,62 @@ some **comfort**._
 ---
 <br><br>
 ## Unlabeled
+<br><br>
+I´ve never felt like I belong here.  
+The chaos and rush make it _hard to breathe_.   
+<br><br>
+The standards of society make me _**sick**_.
+<br><br>
+<br><br>
+
+--- 
+<br><br>
+We _**discover**_ the world through a textbook.   
+For years we sit and regurgitate    
+what we are told.
+<br><br>
+<br><br>
+Raised not to make a difference in this world.   
+Raised to be _**no different**_.  
+<br><br>
+<br><br>
+
+---
+<br><br>
+
+_Keep your head down._   
+  
+_Follow the rules._  
+  
+_Do as you´re told._
+  
+_Play it safe._ 
+<br><br>
+<br><br>
+
+---
+<br><br>
+It´so easy to get lost in the _**loud world**_.
+<br><br>
+<br><br>
+
+---
+<br><br>
+Chasing _**shiny**_ things.   
+
+<br><br>    
+Spamming each other with our burning commentary bullshit,  
+_**masquerading as insight**_.
+<br><br>
+<br><br>
+Hiding behind _**empty polished lables**_.
+<br><br>
+<br><br>
+We put this _**civilized mask on**_.  
+But when you strip that away, _**what are we?**_
+<br><br>
+<br><br>
+
+---
+<br><br>
 

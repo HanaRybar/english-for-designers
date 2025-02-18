@@ -167,7 +167,7 @@ We accept the reality of the world with which we´re presented.
 
 ---
 <br><br>
-_We are **NOT** just a designers._  
+_We are **NOT** just designers._  
 <br><br>
 Every **choice** we make—every ad, every product, every interface—
 ripples far beyond the brief.
@@ -278,4 +278,57 @@ But when you strip that away, _**what are we?**_
 
 ---
 <br><br>
+Why help the starving when you can´t _**profit**_ of them?
+<br><br>
 
+Making billions out of backs of _**children**_.
+<br><br>
+
+Killing for our _**satisfaction**_.
+<br><br>
+
+And still, we want _**MORE**_.
+<br><br>
+<br><br>
+
+---
+<br><br>
+The cracks are getting _**wider**_.
+<br><br>
+<br><br>
+
+---
+<br><br>
+When something falls _**apart**_,  
+something _**new**_ takes its place.
+<br><br>
+<br><br>
+In a world where it´s easier to be _**apathetic**_,  
+caring is the ultimate _**Act of Rebellion**_.
+<br><br>
+
+_To pay **attention**._  
+_To be **intentional**._
+<br><br>
+_To create like it **matters**._
+<br><br>
+<br><br>
+
+---
+<br><br>
+I’ve never seen myself _**just**_ as a designer.  
+Design is a _**powerful**_ tool.
+<br><br>
+<br><br>
+_To educate._  
+_To inspire._
+  
+_To build a better world._ 
+<br><br>
+<br><br>
+I may not have all the _**answers**_ yet.  
+Maybe I _**never**_ will.
+<br><br>
+<br><br>
+One thing I know for sure  
+—_**I will be the change I want to see**_

@@ -197,11 +197,11 @@ Decisions we don’t always realize we’re making.
 The danger sneaks in _quietly_.
 <br><br>
 <br><br>
-
----
-<br><br>
 _Don’t be a **stylist** of someone’s story._
 <br><br>
+<br><br>
+
+---
 <br><br>
 And at the end of the day, we want to get _**sedated**_.  
 <br><br>

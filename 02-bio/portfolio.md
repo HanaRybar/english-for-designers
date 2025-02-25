@@ -11,5 +11,5 @@
 ### Coffee Shop Branding
 <br><br>
 <br><br>
-![Asset 1](https://github.com/user-attachments/assets/c0f28fa0-71ea-41e6-8f91-bdd5e5541b81)
+![AllFrogsMust](https://github.com/user-attachments/assets/77d480c7-d204-4eeb-b4ce-6d92bc872a76)
 ### All Frogs Must Croak

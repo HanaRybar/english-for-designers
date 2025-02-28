@@ -8,7 +8,8 @@
 <br><br>
 ![cafe letka](https://github.com/user-attachments/assets/06f27a81-5462-47c4-9ab2-fa5f59f9b6ac)
 ![cafe letka menu](https://github.com/user-attachments/assets/01d4c86a-759b-46e2-a5d0-a6cdd9c00b03)
-### Brewtiful Brand: Full of Flavor
+### Brewtiful Brand: Full of Flavor  
+[headlines](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/headlines.md)
 <br><br>
 <br><br>
 ![AllFrogsMust](https://github.com/user-attachments/assets/77d480c7-d204-4eeb-b4ce-6d92bc872a76)

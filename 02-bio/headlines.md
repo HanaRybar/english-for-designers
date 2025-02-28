@@ -13,6 +13,4 @@
 
 ### Brewing Bold Ideas  
 
-### Strong, Fresh, Bold  
-
 ### The Perfect Blend

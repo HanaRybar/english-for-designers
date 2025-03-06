@@ -13,5 +13,6 @@
 <br><br>
 <br><br>
 ![AllFrogsMust](https://github.com/user-attachments/assets/77d480c7-d204-4eeb-b4ce-6d92bc872a76)
-### Pondering Pond of Existential Amphibian  
-_**Croak Like No One’s Pondering!**_
+### Pondering Pond of Existential Amphibian 
+_**Croak Like No One’s Pondering!**_  
+

@@ -4,4 +4,6 @@
 [Bio](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/bio.md)  
 <br><br>
 [Portfolio](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/portfolio.md)  
-[Headlines](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/headlines.md)
+[Headlines](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/headlines.md) 
+<br><br>
+[Case Study](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/case-study.md)

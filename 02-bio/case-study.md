@@ -89,3 +89,9 @@ It all began with the coffee.
   
 From cup to concept, every design choice   
 was grounded in what made Letka _**Letka**_.
+<br><br>
+<br><br>
+(A Shot of Creativity)
+
+(The Perfect Blend)  
+/Fusion of Creativity and Strategy/

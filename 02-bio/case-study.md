@@ -18,8 +18,8 @@ When I first stepped inside Café Letka,
 I was genuinely _**amazed**_.  
 <br><br>
 
-Set in a historical building with tall ceilings   
-and those **_iconic_** blue arched windows.  
+Set in a historical building with tall ceilings  
+and those _**iconic**_ windows with blue arches.  
   
 —the space immediately felt inviting    
 and _**full of life**_.
@@ -35,7 +35,7 @@ created their _**striking signature**_ look.
 The cozy atmosphere, the quiet hum of conversation,  
 and the sense of community made it more than just a café.
   
-Letka was a local favorite for _**a reason**_.
+Letka is a local favorite for _**a reason**_.
 <br><br>
 Their photography managed to capture glimpses of that charm.  
 But beyond the lens, the brand fell like _**lukewarm coffee**_.  
@@ -69,7 +69,7 @@ Old textures worn into the walls.
 Flowy ornaments and the bold,  
 minimal touches.
 <br><br>
-Letka was a masterclass in contrast.  
+Letka is a masterclass in contrast.  
 Soft and strong.  
 Old and new.
 <br><br>
@@ -77,7 +77,7 @@ And always, the coffee.
 Smooth, rich, comforting.  
 With latte art that moved like brushstrokes—flowy, delicate, and intentional.  
 <br><br>
-Letka didn’t just serve coffee.  
+Letka doesn´t just serve coffee.  
 It served a _**feeling**_.
 <br><br>
 <br><br>

@@ -3,7 +3,7 @@
 <br><br>
 <br><br>
 Loved by locals, Café Letka  had _**all the right flavors**_.  
-The heart, the vibe, and the loyal crowd.  
+The warmth, the vibe, and the loyal crowd.  
   
 But when it comes to branding  
 —_it’s time to **turn up the heat**._
@@ -14,32 +14,40 @@ But when it comes to branding
 _What's Wrong with Their Branding_ 
 <br><br>
 <br><br>
-When I first stepped inside Café Letka,  
-I was genuinely _**amazed**_.  
+It didn’t take long to understand that Letka  
+_**isn’t just another**_ place to grab a coffee.
 <br><br>
-
+<br><br>
+![letka foto](https://github.com/user-attachments/assets/81ae2e2e-4f4a-4044-aada-563a1d11ed68)
+<br><br>
+<br><br>
 Set in a historical building with tall ceilings  
 and those _**iconic**_ windows with blue arches.  
-  
-—the space immediately felt inviting    
-and _**full of life**_.
 <br><br>
-  
-The interior had a unique charm.  
+The interior had a _unique charm_.  
 Thoughtful blend of **old** and **new**.
-  
-Ornamental details paired with clean, modern lines  
-created their _**striking signature**_ look. 
 <br><br>
-  
+Ornamental details paired with clean,  
+modern lines created their  
+_**striking signature**_ look. 
+<br><br>
+<br><br> 
+
+<br><br>  
 The cozy atmosphere, the quiet hum of conversation,  
 and the sense of community made it more than just a café.
-  
+<br><br> 
 Letka is a local favorite for _**a reason**_.
 <br><br>
+<br><br> 
+![letka foto_3](https://github.com/user-attachments/assets/4389c375-6198-48a1-8f54-11ba513c654b)
+<br><br>
+<br><br> 
 Their photography managed to capture glimpses of that charm.  
-But beyond the lens, the brand fell like _**lukewarm coffee**_.  
-  
+But beyond the lens, the brand felt like _**lukewarm coffee**_.  
+
+<br><br> 
+<br><br>  
 No strong identity.   
 No aroma that lingered.   
 Nothing that truly said: _**“This is Letka.”**_
@@ -52,33 +60,43 @@ It was time for **Fresh Cup of Coffee**!
 Where I Got My Inspiration From
 <br><br>
 <br><br>
-From the texture of the walls  
-to the rhythm of the space,  
-Letka brewed a _**feeling**_.
+From the **texture** of the walls  
+to the **rhythm** of the space, that’s where  
+the _**inspiration started**_.
 <br><br>
-That’s where the inspiration started.
+<br><br>
+<br><br>
 <br><br>
 Not with trends or templates,  
 but with what made Letka _**Letka**_.
 <br><br>
 
-It was all in the details.  
-The tall ceilings and layers of history.
+It was all in the _**details**_.  
+The tall ceilings and layers of history.  
 Old textures worn into the walls.  
 
-Flowy ornaments and the bold,  
-minimal touches.
+Flowy _**ornaments**_ and the bold,  
+_**minimal touches**_.
 <br><br>
-Letka is a masterclass in contrast.  
-Soft and strong.  
-Old and new.
 <br><br>
-And always, the coffee.  
-Smooth, rich, comforting.  
-With latte art that moved like brushstrokes—flowy, delicate, and intentional.  
+Letka is a masterclass in _**contrast**_.  
+_Soft and strong.  
+Old and new._
+<br><br>
+![letka coffee](https://github.com/user-attachments/assets/b72856ef-3222-4aee-b473-930d0e7e9752)
+
+
+<br><br>
+**And always, the coffee.**  
+Smooth, rich, comforting.<br>
+  
+With latte art that moved like _**brushstrokes**_    
+_—flowy, delicate, and intentional._
+
+<br><br>
 <br><br>
 Letka doesn´t just serve coffee.  
-It served a _**feeling**_.
+It serves a _**feeling**_.
 <br><br>
 <br><br>
 ### Brewing Bold Ideas  

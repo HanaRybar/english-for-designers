@@ -44,8 +44,10 @@ Letka is a local favorite for _**a reason**_.
 <br><br>
 <br><br> 
 Their photography managed to capture glimpses of that charm.  
-But beyond the lens, the brand felt like _**lukewarm coffee**_.  
-
+But beyond the lens, the brand felt like _**lukewarm coffee**_.
+<br><br> 
+<br><br> 
+![foto letka](https://github.com/user-attachments/assets/1a81e482-2fa2-4fa5-b7be-7fd22b065940)
 <br><br> 
 <br><br>  
 No strong identity.   

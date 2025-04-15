@@ -50,9 +50,10 @@ But beyond the lens, the brand felt like _**lukewarm coffee**_.
 ![foto letka](https://github.com/user-attachments/assets/1a81e482-2fa2-4fa5-b7be-7fd22b065940)
 <br><br> 
 <br><br>  
-No strong identity.   
-No aroma that lingered.   
-Nothing that truly said: _**“This is Letka.”**_
+- No strong identity.   
+- No aroma that lingered.   
+- Nothing that truly said: _**“This is Letka.”**_
+<br><br>
 <br><br>
 
 It was time for **Fresh Cup of Coffee**!

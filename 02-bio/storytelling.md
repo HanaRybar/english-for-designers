@@ -5,7 +5,7 @@ where _**rivers**_ carve deep into the land — and where the human spirit
 still lives _**close to nature**_.
 <br><br>
 <br><br>
-![high tatras 1](https://github.com/user-attachments/assets/57b06b37-adb5-4b3f-b8e1-811147feaa2d)
+_image_
 <br><br>
 <br><br>
 _**I owe everything to this place.**_ 
@@ -26,7 +26,7 @@ climbing on high mountains,
 observing wild animals.
 <br><br>
 <br><br>
-![Screenshot_20200821_215720_com huawei himovie overseas-01-01-2](https://github.com/user-attachments/assets/0ada5afc-7f6f-4bc9-b6aa-5b9089459881)
+_image_
 <br><br>
 <br><br>
 **It teaches you to _slow down_,  
@@ -59,7 +59,7 @@ for family and loved ones
 is a _special feeling_.
 <br><br>
 <br><br>
-![DSC_1396](https://github.com/user-attachments/assets/3c0679cd-f215-423e-8610-afe9e7abaa2f)
+_image_
 <br><br>
 <br><br>
 **I always felt a _deep connection_  

@@ -6,4 +6,6 @@
 [Portfolio](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/portfolio.md)  
 [Headlines](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/headlines.md) 
 <br><br>
-[Case Study](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/case-study.md)
+[Case Study](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/case-study.md)  
+[Storytelling](https://github.com/HanaRybar/english-for-designers/blob/main/02-bio/storytelling.md)
+

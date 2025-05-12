@@ -344,13 +344,14 @@ To _return to the wild_.**
 <br><br>
 To build a homestead.  
 To become more self-sufficient.  
+To live close to nature.
 <br><br>
 Hit the road.  
 Immerse myself in new places, new cultures.  
+To create not for _clients_, but for _communities_.
+
+For stories that _matter_.
 <br><br>
-<br><br>
-And in the moments between,  
-to _create freely_.
 <br><br>
 I’ve never seen myself _**just**_ as a designer.  
 Design is a _**powerful**_ tool.
@@ -375,8 +376,9 @@ I may not have all the _**answers**_ yet.
 Maybe I _**never**_ will.
 <br><br>
 <br><br>
-One thing I know for sure  
-—_**I will be the change I want to see**_
+But I know what I stand for.  
+  
+_**I design mindful living.**_
 <br><br>
 <br><br>
 <br><br>

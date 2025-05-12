@@ -106,7 +106,7 @@ _That quiet resilience
 is alive in my father._
 <br><br>
 <br><br>
-_image_
+![dad storytelling](https://github.com/user-attachments/assets/d73bf326-4c7e-474f-8678-65c9155b9126)
 <br><br>
 <br><br>
 **Mountaineer.  
@@ -125,7 +125,7 @@ He taught me about _**freedom**_.
 And _**loss**_.
 <br><br>
 <br><br>
-_image_
+![mini me](https://github.com/user-attachments/assets/e420f73f-7620-4c32-ba37-ae1cabfa6e93)
 <br><br>
 <br><br>
 _**From him — I got the wild spirit.**_

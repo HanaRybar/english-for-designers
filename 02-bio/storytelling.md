@@ -350,7 +350,7 @@ Hit the road.
 Immerse myself in new places, new cultures.  
 To create not for _clients_, but for _communities_.
 
-For stories that _matter_.
+To tell stories that _matter_.
 <br><br>
 <br><br>
 I’ve never seen myself _**just**_ as a designer.  

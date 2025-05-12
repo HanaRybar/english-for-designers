@@ -161,7 +161,7 @@ To truly appreciate each moment,
 to live _mindfully_.
 <br><br>
 <br><br>
-![AllFrogsMust](https://github.com/user-attachments/assets/77d480c7-d204-4eeb-b4ce-6d92bc872a76)
+![FROGO STORYTELLING](https://github.com/user-attachments/assets/15dd6947-be90-4936-b8ce-df8f97f2fcc5)
 <br><br>
 <br><br>
 ## Croak Like No One’s Pondering!
@@ -332,6 +332,10 @@ but feel _empty_.
 I came to _understand the world_.  
 To experience its _complexity_,  
 to challenge the _familiar_.  
+<br><br>
+<br><br>
+![into the wildň](https://github.com/user-attachments/assets/47f28965-7528-4d2d-948d-f7c5d3ceedc9)
+<br><br>
 <br><br>
 **But now, I know it’s _time to go_.  
 To _walk away_.  

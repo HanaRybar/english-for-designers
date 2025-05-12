@@ -1,3 +1,4 @@
+# Designing Mindful Living  
 <br><br>
 <br><br>
 My story begins where _**the mountains**_ rise sharp against the sky,  
@@ -5,7 +6,7 @@ where _**rivers**_ carve deep into the land — and where the human spirit
 still lives _**close to nature**_.
 <br><br>
 <br><br>
-_image_
+![home storytelling](https://github.com/user-attachments/assets/73c2526f-0371-429a-b0a0-140723ee6f2c)
 <br><br>
 <br><br>
 _**I owe everything to this place.**_ 
@@ -26,7 +27,7 @@ climbing on high mountains,
 observing wild animals.
 <br><br>
 <br><br>
-_image_
+![storytelling ](https://github.com/user-attachments/assets/820756a9-0362-481e-ab9e-8ac091978fa6)
 <br><br>
 <br><br>
 **It teaches you to _slow down_,  
@@ -59,7 +60,7 @@ for family and loved ones
 is a _special feeling_.
 <br><br>
 <br><br>
-_image_
+![homestead storytelling](https://github.com/user-attachments/assets/2832e140-ef87-43f5-9380-3a1b71a869f8)
 <br><br>
 <br><br>
 **I always felt a _deep connection_  
@@ -100,8 +101,6 @@ _The values.
 The strength.  
 The quiet resilience._  
 <br><br>
-<br><br>
-## headline
 <br><br>
 _That quiet resilience  
 is alive in my father._
@@ -161,9 +160,11 @@ It taught me to live with _awareness_.
 To truly appreciate each moment,  
 to live _mindfully_.
 <br><br>
-_**When death finds you,  
-may it find you alive.**_ 
 <br><br>
+![AllFrogsMust](https://github.com/user-attachments/assets/77d480c7-d204-4eeb-b4ce-6d92bc872a76)
+<br><br>
+<br><br>
+## Croak Like No One’s Pondering!
 <br><br>
 **For a long time, I didn’t know why  
 I loved the things I do.**
@@ -193,7 +194,7 @@ and rawness of who you are
 —whether you like it or not.**_
 <br><br>
 <br><br>
-## headline
+## Lessons from the Wild
 <br><br>
 _**All those experiences shaped me.**_ 
   

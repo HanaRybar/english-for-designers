@@ -63,7 +63,7 @@ is a _special feeling_.
 ![homestead storytelling](https://github.com/user-attachments/assets/2832e140-ef87-43f5-9380-3a1b71a869f8)
 <br><br>
 <br><br>
-**I always felt a _deep connection_  
+**I´ve always felt a _deep connection_  
 to the _big homestead_ in the mountains  
 that _my ancestors_ built.**
 <br><br>

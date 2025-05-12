@@ -106,13 +106,63 @@ It serves a _**feeling**_.
 My Creative Solutions
 <br><br>
 <br><br>
-It all began with the coffee.  
-  
+It all began with the coffee.    
+**A Shot of Creativity**
+<br><br>
 From cup to concept, every design choice   
 was grounded in what made Letka _**Letka**_.
 <br><br>
+_**The Perfect Blend.**_  
+_**Fusion of Creativity and Strategy.**_
 <br><br>
-(A Shot of Creativity)
+<br><br>
+![letka casestudyyyy](https://github.com/user-attachments/assets/77b7c446-4454-4426-94e9-4837c837dd23)
+<br><br>
+<br><br>
+Delicate, flowing lines echo the café’s architecture  
+and the elegance of latte art.  
+A symbol that feels personal — almost hand-crafted.  
+<br><br>
+<br><br>
+![letka casestudyyyyy](https://github.com/user-attachments/assets/2e8160a5-4b72-4360-b68f-1c762c20f92a)
+<br><br>
+<br><br>
+Inspired by the architecture — warm, aged textures with character.  
+But Letka isn’t just earth tones.  
+  
+Accents of blue and pink from the window arches and interior details  
+bring in softness and contrast.  
+  
+And then, the yellow — added to bring warmth into the design and the space itself.  
+Like sunlight. Like community.  
+<br><br>
+<br><br>
+![letka casestudyyyyyy](https://github.com/user-attachments/assets/665c1b4d-894f-499f-a122-7e4bb9047f10)
+<br><br>
+<br><br>
+A balanced mix of serif and sans serif fonts.  
+A harmonious contrast.  
+_Perfect blend of old and new._
+<br><br>
+<br><br>
+![cafe letka](https://github.com/user-attachments/assets/184ea91f-0f15-48eb-86c0-ce7a01b31d11)
+![cafe letka menu](https://github.com/user-attachments/assets/61e5b8b0-5a0d-4425-9c8f-9f0797debf9c)
+<br><br>
+<br><br>
+Not just a shape — a message.  
+The circle stands for wholeness, for gathering, for time well spent.  
+It breaks from the standard menu form —  
+just like Letka breaks from the standard café.  
+<br><br>
+<br><br>
+**In the end, the branding didn’t reinvent Letka —  
+it revealed it.**  
+<br><br>
+_Layer by layer.  
+Detail by detail.  
+A space translated into identity._  
+<br><br>
+**An identity full of flavor.**
 
-(The Perfect Blend)  
-/Fusion of Creativity and Strategy/
+
+

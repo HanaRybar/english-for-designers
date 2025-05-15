@@ -161,10 +161,8 @@ To truly appreciate each moment,
 to live _mindfully_.
 <br><br>
 <br><br>
-![FROGO STORYTELLING](https://github.com/user-attachments/assets/15dd6947-be90-4936-b8ce-df8f97f2fcc5)
+
 <br><br>
-<br><br>
-## Croak Like No One’s Pondering!
 <br><br>
 **For a long time, I didn’t know why  
 I loved the things I do.**
